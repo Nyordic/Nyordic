@@ -1,0 +1,3 @@
+- Hi, I’m @Nyordic
+- I’m interested in downloading stuff off the internet
+- I’m currently learning how to make osu! skins
